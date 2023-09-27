@@ -1,16 +1,18 @@
-### Hi there 👋
+### 🍉 seja muito bem vindo ao meu perfil 🍉
 
-<!--
-**tiaanaclara08/tiaanaclara08** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Prazer, Ana Clara Fontana:)
 
-Here are some ideas to get you started:
+- Tenho 15 anos;
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Vou fazer um intercâmbio p/ austrália em 2024;
+
+- Sou estudante do Colégio Estadual Duque de Caxias.
+ 
+Caso queira entre em contato🥲
+  
+📬 aclarafontana@gmail.com
+
+@aclarafontana
+
+
+![](https://media.tenor.com/SM7bIpcBdFMAAAAC/up-bye.gif)
