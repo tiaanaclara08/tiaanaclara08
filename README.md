@@ -4,7 +4,7 @@ Prazer, Ana Clara Fontana:)
 
 - Tenho 15 anos;
 
-- Vou fazer um intercâmbio p/ austrália em 2024;
+- Vou fazer um intercâmbio p/ Austrália em 2024;
 
 - Sou estudante do Colégio Estadual Duque de Caxias.
  
