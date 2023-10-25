@@ -12,7 +12,12 @@ Caso queira entre em contato🥲
   
 📬 aclarafontana@gmail.com
 
-@aclarafontana
+
+
+
+![](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)@aclarafontana
 
 
 ![](https://media.tenor.com/SM7bIpcBdFMAAAAC/up-bye.gif)
+
+
